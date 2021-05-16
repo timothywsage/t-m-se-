@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... lulz
 - 🌱 I’m currently learning ... .JS .... .everything... at least thats what it feels like. But fun hobbie for me is cryptography, 
 - 💞️ I’m looking to collaborate on ... Human Consicous AI/ ML project 
-- 📫 How to reach me ... this was great, and @timothysage.5000@gmail.com  
+- 📫 How to reach me ... when ˈstəʊnˈwɔːl is finished, Smile for the skriddies..... annnnd then there is the one playing with "əˈreɪz"... 
 
 
 <!---
