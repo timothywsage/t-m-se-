@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @timothywsage 
+- 👋 Hi, I’m @tɪm  seɪʤ friends call me ... ᛊᛟᚹᛁᛚᛟ  
 - 👀 I’m interested in ... lulz
 - 🌱 I’m currently learning ... .JS .... .everything... at least thats what it feels like. But fun hobbie for me is cryptography, 
 - 💞️ I’m looking to collaborate on ... Human Consicous AI/ ML project 
